@@ -12,7 +12,8 @@ Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
 [Chichén Itzá.jpg] 
 
-[Paris.jpg](
+[Paris.jpg](https://github.com/Kattya99/Actividad-final-Git-y-Github/blob/4d1204da116ca67da0162a1ed2c4b3acd9e2ef68/Paris.md)
+
 -Estambul
 
 -Macchu Picchu
