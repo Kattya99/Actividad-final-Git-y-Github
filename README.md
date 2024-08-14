@@ -16,6 +16,6 @@ Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
 [Estambul.jpg](https://i.postimg.cc/y6vHy8mt/sunset-over-istanbul-stockcake.jpg)
 
-[Macchu Picchu.jpg] (https://i.postimg.cc/T3Wvxjzv/majestic-mountain-grazing-stockcake.jpg)
+[Macchu Picchu.jpg](https://i.postimg.cc/T3Wvxjzv/majestic-mountain-grazing-stockcake.jpg)
 
 
