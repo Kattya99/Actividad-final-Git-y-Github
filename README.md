@@ -1,9 +1,9 @@
 ***Lugares turisticos del mundo***
 
 
-**Autoras** Kattya Guerrero y Tania Chapa
+**Autoras**: Kattya Guerrero y Tania Chapa
 
-**Fecha** 14 de agosto de 2024
+**Fecha**: 14 de agosto de 2024
 
 Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
