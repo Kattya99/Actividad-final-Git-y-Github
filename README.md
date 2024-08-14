@@ -1,4 +1,4 @@
-***Lugares turisticos del mundo***
+***Lugares turísticos del mundo***
 
 
 **Autoras**: Kattya Guerrero y Tania Chapa
