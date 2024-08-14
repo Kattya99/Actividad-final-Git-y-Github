@@ -12,8 +12,7 @@ Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
 [Chichén Itzá.jpg] 
 
--Paris
-
+[Paris.jpg](
 -Estambul
 
 -Macchu Picchu
