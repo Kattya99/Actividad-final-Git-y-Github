@@ -7,7 +7,8 @@
 
 Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
-[Islas Galápagos](Islas Galápagos.md)
+![Islas Galápagos](Islas_Galápagos.jpg)
+
 
 -Chichén Itzá
 
