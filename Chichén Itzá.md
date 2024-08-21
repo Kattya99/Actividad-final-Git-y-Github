@@ -1,4 +1,4 @@
-![Descripción de la imagen](https://i.postimg.cc/wMfYqwxg/sunset-at-chichen-stockcake.jpg)
+![Chichén Itzá](https://i.postimg.cc/wMfYqwxg/sunset-at-chichen-stockcake.jpg)
 
 # La legendaria ciudad maya
 
