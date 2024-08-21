@@ -1,4 +1,4 @@
-![Descripción de la imagen](https://i.postimg.cc/kXHPLYhy/p.jpg)
+![París](https://i.postimg.cc/kXHPLYhy/p.jpg)
 
 # **Descubre Paris**
 
