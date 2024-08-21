@@ -7,6 +7,7 @@ Macchu Picchu, fue construida a mediados del siglo XV y se cree que fue una de l
 A continuación te presentamos qué podrás disfrutar de este sitio:
 
 - *Obra maestra de arte*: La ciudad Inca del Santuario Histórico de Machu Picchu es una obra maestra del arte, arquitectura, urbanismo e ingeniería de la civilización Inca, habiendo fungido además como el centro articulador de un vasto territorio. La construcción del sitio implicó la transformación de una montaña que, además de representar un gigantesco esfuerzo, resultó en una integración excepcional con el medio ambiente, convirtiendo a la obra humana en una extensión de la naturaleza.
+
 - *Historia*: La ciudadela de Machu Picchu es un testimonio único de la civilización Inca que muestra, en su espacio urbano, una bien planificada organización de funciones sociales, administrativas, religiosas y productivas, y está dotada de componentes y elementos complementarios que le permitieron ejercer un control efectivo del territorio.
 
 *Lugares incónicos de Macchu Picchu*
