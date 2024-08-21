@@ -1,2 +1,21 @@
 ![Descripción de la imagen](https://i.postimg.cc/wMfYqwxg/sunset-at-chichen-stockcake.jpg)
 
+# La legendaria ciudad maya
+
+ Chichén Itzá, fue declarada por la UNESCO desde 1988 como Patrimonio de la Humanidad  y Maravilla del Mundo desde 2007, sobresalió como centro cultural y político de la vieja civilización maya y fue uno de los asentamientos más extensos del centro-norte de la península de Yucatán. En su época de mayor esplendor, fue la ciudad más poderosa de la península de Yucatán.
+
+**Historia**
+
+El nombre Chichén significa "boca del pozo" e Itzá se refiere a quienes lo fundaron, los itzaes "brujos del agua", alrededor del año 435.En la sociedad maya, el Halach Uinic o gobernante de carácter divino y hereditario, vivía en los palacios, junto a sacerdotes y nobles que realizaban tareas administrativas. Dentro de la élite había tesoreros, escribas, arquitectos y guerreros, oficios fielmente plasmados en los murales, bajorrelieves y cerámicas del lugar.Por su parte, agricultores, tejedores y artesanos vivían en los pueblos aledaños y llegaban a la ciudad para ir al mercado y asistir a las celebraciones religiosas que poblaban sus precisos calendarios. Los mayas usaban dos calendarios: uno solar y otro ritual. El calendario solar, el más exacto que cualquier otro, se dividió en 18 meses de 20 días, más 5 días oscuros, que fueron llamados uayeb (sin nombre). El calendario ritual, o Tzolkin, era de 260 días, 20 meses de 13 días y se usaba para la adivinación. La conjugación de los dos calendarios dio como resultado un período de 52 años, cuyo equivalente occidental podría ser el siglo. La religión presidía la vida diaria de los mayas, y su abultado panteón de dioses estaba relacionado con las fuerzas de la naturaleza. De hecho, una de las actividades más importantes de Chichén Itzá fue su rol como ciudad sagrada y centro de peregrinaje, función que mantuvo más allá de su supervivencia. El Cenote Sagrado ha sido testigo de esto: fue un lugar de ofrendas de oro, jade, concha o madera, así como sacrificios humanos.
+
+**Sitios que no te los puedes perder**
+
+-*Pirámide o castillo de Kukulkán*: Este templo es el edificio principal de la ciudad de Chichén Itzá. Su estructura pone de manifiesto los conocimientos de los mayas sobre matemáticas, astronomía, geometría y acústica. Su perfecta simetría representa el calendario maya: 18 cuerpos (el número de meses, de 20 días cada uno) y 365 peldaños (días del año), cinco de los cuales se consideraban nefastos. 
+
+-*El cenote sagrado de Chichen Itzá*: Se trata de un agujero en la tierra de forma circular con 60 metros de diámetro y 15 de profundidad. Un camino de aproximadamente 300 metros conecta este lugar sagrado con la pirámide de Kukulkán. Las exploraciones han revelado que este cenote era un punto de peregrinación del mundo maya, donde se practicaban rituales y se hacían ofrendas a los dioses. 
+
+-*El templo de los Guerreros*: Este impresionante templo rodeado de un gran grupo de columnas está formado por cuatro cuerpos de 40 metros de ancho cada uno. En la última plataforma está situado el templo superior, que a su vez se encuentra dividido en dos salas. Fue construido en el año 1200 d.C, perteneciente al periodo postclásico. En ella se encuentra el chacmoool, una escultura que sostiene un cuenco posiblemente usado en los rituales.
+
+- *Las Mil columnas de chichén itzá*: Las "Mil Columnas" no son mil columnas reales, como su nombre podría sugerir. En realidad es un área arqueológica que se compone de un gran grupo de columnas dispuestas en formaciones cuadrangulares. La impresionante arquitectura y la simbología asociada con estas estructuras hacen que la Gran Plaza en la que se encuentran sea una parte significativa del patrimonio arqueológico de Chichen Itza. Originalmente, estas columnas, decoradas con bajorrelieves bélicos, sostenían estructuras y techos que cubrían el área y se utilizaban para propósitos ceremoniales, incluyendo actividades religiosas y rituales.
+
+- *Observatorio El Caracol de Chichén Itzá*: Esta edificio también es conocido como el Caracol por la forma de espiral que oculta en su interior. Se le atribuye una función astronómica puesto que las aberturas de sus muros estaban orientadas hacia Venus y otros astros. Las observaciones que se realizaban eran muy intuitivas y se llevaban a cabo sin ningún tipo de aparato. 
