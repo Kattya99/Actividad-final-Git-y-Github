@@ -14,4 +14,5 @@ Esta actividad tratará temas relacionados a los lugares turísticos del mundo:
 
 
 **Fecha**: 21 de agosto de 2024.
+
 **Autoras**: Kattya Guerrero y Tania Chapa.
